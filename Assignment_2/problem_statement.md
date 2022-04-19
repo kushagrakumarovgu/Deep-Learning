@@ -1,0 +1,1 @@
+https://ovgu-ailab.github.io/idl2020w/ass2.html
